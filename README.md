@@ -1,1 +1,1 @@
-[url=https://ibb.co/JvC85Qf][img]https://i.ibb.co/wSY8Ms9/Untitled.png[/img][/url]
+<a href="https://ibb.co/JvC85Qf"><img src="https://i.ibb.co/wSY8Ms9/Untitled.png" alt="Untitled" border="0" /></a>
